@@ -10,6 +10,8 @@ $\color{#DB5282}\text{2nd Account}$
 
 $\color{#DB5282}\text{@ Sourcepartner ; Mizi . @ Fictotype ; Sua}$
 
+$\color{#DB5282}\text{Doubles strictly DNI}$
+
 $\color{#DB5282}\text{Go follow my main @ ManicCentipede!}$
 
 </details>
