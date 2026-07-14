@@ -17,7 +17,7 @@ $\color{#DB5282}\text{Go follow my main @ ManicCentipede!}$
 </div>
 
 <p align="center">
-  <a href="https://x.com/tsusealyangel?lang=en">
+  <a href="https://www.tumblr.com/jiraitouya">
     <img src="https://i.ibb.co/cKm8C2TW/image-2026-07-14-184608361.png">
   </a>
 
