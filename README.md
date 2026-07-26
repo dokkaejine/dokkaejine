@@ -10,7 +10,7 @@ $\color{#DB5282}\text{2nd Account}$
 
 $\color{#DB5282}\text{@ Sourcepartner ; Mizi . @ Fictotype ; Sua}$
 
-$\color{#DB5282}\text{Doubles strictly DNI}$
+$\color{#DB5282}\text{Sua Doubles strictly DNI ,, Mizi INT !}$
 
 $\color{#DB5282}\text{Go follow my main @ ManicCentipede!}$
 
@@ -28,15 +28,6 @@ $\color{#DB5282}\text{Go follow my main @ ManicCentipede!}$
 
 <div align="center">
 
-<details>
-
-<summary>$\color{#DB5282}\text{TRIGGER WARNINGS}$</summary>
-
-$\color{#DB5282}\text{Eye strain and low contrast text on Strawpage ! ( I think ? )}$
-
-</details>
-
-</div>
 
 
 <p align="center">
