@@ -6,13 +6,7 @@
 
 <summary>$\color{#DB5282}\text{Notes}$</summary>
 
-$\color{#DB5282}\text{2nd Account}$
-
-$\color{#DB5282}\text{@ Sourcepartner ; Mizi . @ Fictotype ; Sua}$
-
-$\color{#DB5282}\text{Sua Doubles strictly DNI ,, Mizi INT !}$
-
-$\color{#DB5282}\text{Go follow my main @ ManicCentipede!}$
+$\color{#DB5282}\text{Heyo , this is my 2nd account ! Go follow my main @ ManicCentipede !}$
 
 </details>
 
